@@ -1,0 +1,1 @@
+bom dia Augusto meu filho... você precisa estudar programação para criar seus jogos e aplicativos!!!! Você vai ser PRO em alguns meses se estudar um pouco todos os dias!!!!
